@@ -1,1 +1,0 @@
-Não está funcionando corretamente.
